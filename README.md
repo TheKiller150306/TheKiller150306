@@ -1,5 +1,5 @@
-Just dm me on discord TheKiller150306#8739 ill probs reply
-idk what els u wanna know abt me other than i suck at coding
+ discord : TheKiller150306#8739 
+
 
 
 
